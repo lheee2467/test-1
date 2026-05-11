@@ -1,4 +1,4 @@
-![프로필 이미지](beautiful-morning-pang-ung-lake-pang-ung-mae-hong-son-province-thailand_335224-935)
+![프로필 이미지](beautiful-morning-pang-ung-lake-pang-ung-mae-hong-son-province-thailand_335224-935.avif)
 
 #  README 파일이란?
 
